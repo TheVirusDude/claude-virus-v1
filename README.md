@@ -1,2 +1,2 @@
-(I AM NOT LIABLE FOR WHAT HAPPENS TO YOUR COMPUTER)
+THIS VIRUS WAS MADE WITH CLAUDE(I AM NOT LIABLE FOR WHAT HAPPENS TO YOUR COMPUTER)
 it says prank ui but it is not a prank this file will lock you out of your pc and make it unusable so dont run it on your main pc use a vm it will make you type in your credit card detials, you cant go to task mamager, win+r is blocked and every other command is blocked if this gets famous i will post the code so people can change it them selfs alsoyou neeed to run the server your selfs and if anyone types there deatils on their computer it will get sent to your computer in a txt file or if you have the sever open you will se it in the server. send the prank ui remote to people  and the prank ui is for testing
